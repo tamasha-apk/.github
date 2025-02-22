@@ -1,5 +1,7 @@
 ## Tamasha APK 3.5.3 – Watch Champions Trophy Live on Android & iOS
 
+![unnamed - 2025-02-22T195045 077](https://github.com/user-attachments/assets/82a96390-bd2d-4b88-8e31-053c233512ff)
+
 ## Download Here:👉 [Tamasha APK](https://apkbros.com/tamasha-apk/)
 
 ## Introduction
